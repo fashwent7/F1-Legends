@@ -220,4 +220,4 @@ F1 Legends is the **full free version** of the game, providing players with all 
 Ready to hit the track? **Download F1 Legends now and experience the thrill of classic Formula 1 racing!**
 
 ---
-**Last updated:** 2026-10-02 06:33:01 UTC
+**Last updated:** 2026-10-02 13:26:43 UTC
